@@ -11,7 +11,12 @@
 ![Image](https://github.com/user-attachments/assets/bef80dbe-c30a-4c99-bc64-7e92ee917e07)
 
 ![Image](https://github.com/user-attachments/assets/46889dd3-f618-4df2-856e-0ca72b8b8211)
+![Image](https://github.com/user-attachments/assets/e19dc236-4a7e-4653-9ded-a508cfb2a1c1)
 
+![Image](https://github.com/user-attachments/assets/9cfa882f-f4b0-4563-b026-418e16b838bc)
+
+
+[verso INMEDIA2.pdf](https://github.com/user-attachments/files/25080801/verso.INMEDIA2.pdf)
 
 ![Image](https://github.com/user-attachments/assets/0a90c7ec-d8d9-4048-a97e-734eabaff8ac)
 
